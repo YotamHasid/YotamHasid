@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @YotamHasid
+- 🌱 I’m currently a student on my 3nd year at HIT - Computer Science.
+- 💞️ Looking for a Junior position.
+- 📫 How to reach me : https://www.linkedin.com/in/yotam-hasid-b692b4325?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BHdP7kkEaRumnel7Xw3NsJw%3D%3D
